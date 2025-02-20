@@ -1,0 +1,1 @@
+**Ginger Beer** é uma bebida fermentada não alcoólica feita de gengibre, açúcar e água, conhecida pelo seu sabor picante e refrescante. Amplamente utilizada em coquetéis como o Moscow Mule, também é consumida pura.

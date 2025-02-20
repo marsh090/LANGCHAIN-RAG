@@ -1,0 +1,1 @@
+**Vodka** é uma bebida destilada neutra, geralmente feita a partir de grãos ou batatas, originária da Europa Oriental e Rússia. Destilada várias vezes para alcançar pureza, é conhecida por sua versatilidade em coquetéis devido ao sabor suave e à capacidade de misturar-se bem com outros ingredientes. É uma das bebidas destiladas mais populares e consumidas globalmente.

@@ -1,0 +1,7 @@
+**Whiskey** é uma bebida alcoólica destilada, geralmente feita a partir de grãos como cevada, milho, centeio ou trigo. Originário da Escócia e Irlanda, é envelhecido em barris de carvalho, o que lhe confere sabores complexos de baunilha, caramelo e especiarias. Existem diferentes estilos, como bourbon (EUA) e scotch (Escócia), cada um com características únicas derivadas de métodos de produção específicos.
+
+**Bourbon** é um tipo de whiskey americano feito principalmente de milho e envelhecido em barris de carvalho queimados. Conhecido por seu sabor doce e robusto, com notas de baunilha, caramelo e especiarias, o bourbon é popular tanto para beber puro quanto em coquetéis clássicos como o Old Fashioned.
+
+**Scotch Whisky** é produzido na Escócia e pode ser dividido em várias categorias, incluindo single malt, blended malt e blended Scotch. O single malt é feito de cevada maltada em uma única destilaria, oferecendo uma variedade de sabores que vão desde o frutado até o defumado. Os blended Scotches combinam whiskies de diferentes destilarias para criar um sabor harmonioso e equilibrado, muitas vezes com notas de turfa e carvalho.
+
+**Irish Whiskey** é conhecido por sua suavidade e pureza, sendo feito principalmente de cevada e envelhecido em barris de carvalho. Ele pode ser destilado três vezes para obter um sabor mais suave. Com uma história rica que remonta aos monges irlandeses do século VI, o whiskey irlandês geralmente apresenta notas de frutas e baunilha, sendo uma escolha popular para apreciação pura ou em coquetéis clássicos como o Irish Coffee.

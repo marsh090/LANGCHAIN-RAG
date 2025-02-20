@@ -1,0 +1,9 @@
+**Tequila** é uma bebida destilada originária do México, feita exclusivamente a partir da planta agave azul, principalmente na região ao redor da cidade de Tequila. Produzida através da fermentação e destilação do suco da agave, a tequila é categorizada em diferentes tipos, como blanco, reposado e añejo, dependendo do tempo de envelhecimento. É conhecida por seu sabor distinto e é tradicionalmente consumida pura com sal e limão, ou usada em coquetéis como a margarita.
+
+**Tequila Blanco (Prata)** é a forma mais pura e não envelhecida de tequila, engarrafada logo após a destilação ou após um curto período de descanso (até dois meses) em tanques de aço inoxidável. Possui um sabor forte e agudo de agave, com notas cítricas e de pimenta, sendo ideal para coquetéis como margaritas.
+
+**Tequila Reposado** é envelhecida em barris de carvalho por um período de dois meses a um ano. Este processo de envelhecimento suaviza a tequila, acrescentando sabores de caramelo, baunilha e madeira. É apreciada tanto pura quanto em coquetéis, oferecendo um equilíbrio entre o frescor do agave e a complexidade dos sabores do barril.
+
+**Tequila Añejo** é envelhecida por um período de um a três anos em barris de carvalho. Esse tempo adicional de maturação resulta em uma bebida mais suave e complexa, com notas profundas de caramelo, chocolate e especiarias. É geralmente consumida pura ou em coquetéis sofisticados.
+
+**Tequila Extra Añejo** é a categoria mais nova, criada em 2006, e refere-se a tequilas envelhecidas por mais de três anos. Esse longo período de envelhecimento dá à tequila uma profundidade excepcional de sabores, rivalizando com alguns dos melhores conhaques e whiskies do mundo. Apresenta notas intensas de carvalho, frutas secas e especiarias, sendo ideal para ser apreciada pura.

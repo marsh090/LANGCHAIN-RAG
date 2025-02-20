@@ -1,0 +1,1 @@
+**Chocolate bitters** são um tipo de aromatizante concentrado feito com cacau e uma mistura de ervas e especiarias. Esses bitters são utilizados em coquetéis para adicionar um sabor sutil de chocolate amargo, além de notas de especiarias e um leve amargor. Eles complementam bebidas como o Manhattan e o Old Fashioned, proporcionando profundidade e um toque luxuoso ao paladar.

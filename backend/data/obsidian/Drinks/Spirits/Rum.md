@@ -1,0 +1,5 @@
+**Rum** é uma bebida destilada feita a partir da cana-de-açúcar, especialmente do melaço. Surgiu no Caribe no século XVII e foi amplamente consumido pelos marinheiros e piratas. O processo de produção inclui fermentação, destilação e envelhecimento. Seus sabores variam de doces a picantes, dependendo do tempo de envelhecimento e dos ingredientes usados.
+
+**Rum Escuro (Carta Negra)** é envelhecido em barris de carvalho queimados, o que lhe confere uma cor mais escura e sabores mais profundos e complexos, com notas de caramelo, baunilha e especiarias. É ideal para beber puro ou em coquetéis mais robustos.
+
+**Rum Claro (Carta Branca)** é filtrado para remover impurezas e geralmente envelhecido por um período mais curto, resultando em um sabor mais suave e leve. É transparente e comumente usado em coquetéis como mojitos e daiquiris, proporcionando uma base neutra que realça outros ingredientes.

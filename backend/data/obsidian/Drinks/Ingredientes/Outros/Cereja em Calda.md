@@ -1,0 +1,1 @@
+**Cereja em calda**, como as famosas Luxardo Cherry, são cerejas mergulhadas em uma calda açucarada e licorosa. Luxardo Cherry, originárias da Itália, são conhecidas por seu sabor intenso e doce, com um toque de amêndoa, sendo um complemento popular em coquetéis clássicos como o Manhattan e sobremesas gourmet.

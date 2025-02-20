@@ -1,0 +1,5 @@
+**Xarope de Gengibre** é uma mistura concentrada feita de gengibre fresco, açúcar e água, utilizada para adoçar e aromatizar coquetéis, chás e diversas receitas culinárias. Ele oferece o sabor picante característico do gengibre de forma conveniente e fácil de usar.
+
+**Medida Normal** do xarope de gengibre geralmente segue a proporção 1:1 de açúcar e água, com gengibre fresco adicionado. Esse equilíbrio proporciona uma doçura moderada e um sabor de gengibre presente, mas suave, adequado para a maioria das bebidas e receitas.
+
+**Spicy** xarope de gengibre é feito com uma maior concentração de gengibre, ou utilizando gengibre mais fresco e picante. Essa versão oferece um sabor mais intenso e picante, ideal para quem deseja um toque mais forte de gengibre em seus coquetéis e preparações culinárias.

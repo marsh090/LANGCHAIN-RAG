@@ -1,0 +1,1 @@
+Para tomar absinto, coloca-se uma dose no copo. Depois, põe-se uma colher especial ([Absinthe spoon](https://en.wikipedia.org/wiki/Absinthiana)) com um cubo de açúcar sobre o copo. Lentamente, derrama-se água gelada sobre o açúcar, deixando-o dissolver e misturar com o absinto. A bebida muda de cor, ficando mais opaca e pronta para beber.

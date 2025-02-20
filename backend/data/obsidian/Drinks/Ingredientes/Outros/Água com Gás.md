@@ -1,0 +1,1 @@
+**Água gaseificada** é água que foi enriquecida com dióxido de carbono sob pressão, criando bolhas de gás que conferem um sabor efervescente e uma sensação de frescor na língua. Popular como uma alternativa refrescante às bebidas açucaradas, é consumida sozinha ou como ingrediente em coquetéis e bebidas não alcoólicas, proporcionando uma experiência leve e borbulhante.

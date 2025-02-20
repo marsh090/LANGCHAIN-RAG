@@ -1,0 +1,3 @@
+**Angostura Bitters** é um aromatizante concentrado feito com uma mistura de ervas, especiarias e casca de laranja. Criado em 1824 pelo médico alemão Johann Siegert, em Angostura (atualmente na Venezuela), é famoso por seu sabor amargo e complexo que adiciona profundidade e equilíbrio a coquetéis clássicos como o Manhattan e o Champagne Cocktail. Apesar de seu nome, não contém angostura (uma planta) em sua composição, mas é essencial para bartenders ao redor do mundo devido à sua versatilidade e capacidade de realçar os sabores das bebidas.
+
+Comparado com Orange Bitter, o Angostura é mais amargo.
